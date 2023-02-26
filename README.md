@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @green-sauce-hack
-- 👀 I’m good on the keyboard is...
-am a white hat hacker, and developer.... cool?
+- 👀 I’m very good on the keyboard...
+experience is key
 - 🌱 
 - 💞️ 
 -
